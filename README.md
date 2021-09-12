@@ -1,2 +1,3 @@
 # hello-world
-first repository made in life
+hi this is satyam nice to meet u all guys...i like hockey and kabbadi...
+im new to this iste nice to this site..
